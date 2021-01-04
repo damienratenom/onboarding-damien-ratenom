@@ -1,6 +1,6 @@
 # Stage Damien Ratenom
 
-### Programme stage du 04/01 au 29/01/2021
+### Programme stage du 04/01 au 13/02/2021
 
 🎉 Bienvenue Damien ! Prêt pour le décollage ? ✈️
 
